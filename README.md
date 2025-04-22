@@ -1,0 +1,1 @@
+# Official_Dead_by_Daylight_Wiki_with_Jp_perk_name
